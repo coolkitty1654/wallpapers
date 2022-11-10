@@ -1,4 +1,4 @@
-# Wallpapers
+# coolkitty1654's wallpaper collection
 A collection of wallpapers that I've found around the web.
 
-If you'd like me to get rid of a photo, just send me the file name and I'll do it.
+I have no way of knowing if there is a copyright on these images. If any of these are your images and you want them removed because they are limited use, please notify me.
